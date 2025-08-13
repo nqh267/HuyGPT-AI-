@@ -1,2 +1,0 @@
-# HuyGPT-AI-
-HuyGPT AI 
